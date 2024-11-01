@@ -1,1 +1,0 @@
-# ar_poli50odw7
